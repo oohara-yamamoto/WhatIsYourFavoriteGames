@@ -1,4 +1,4 @@
-私の好きなゲーム
-1.機動戦士ガンダム EXTREME VS.2 OVERBOOST
-2.機動戦士ガンダム EXTREME VS. マキシブーストON 
-3.ペルソナ４
+   ﾌ好   ﾈゲ [  
+1. @    m K   _   EXTREME VS.2 OVERBOOST
+2. @    m K   _   EXTREME VS.  } L V u [ X gON 
+3. y   \ i S
